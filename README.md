@@ -1,0 +1,2 @@
+# premium-kilim-flat-001-kilim-flatweave-motif-library
+Stop losing track of your kilim motifs across scattered notebooks, phone photos, and fabric swatches. Your flatweave designs deserve a centralized, searchable home that evolves with each weave.  This Notion template transforms how you document and manage your kilim flatweave motifs. It combines a visual motif library with a production log, so you c
